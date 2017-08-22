@@ -91,6 +91,8 @@ This is the reason economists like Matheson have an issue with the high amount o
 
 
 
+
+
 Explanation: I became interested in writing an enterprise story on minor league stadium deals during the sports group’s minor league reporting project. The Potomac Nationals were the first team we vistited in late June, and they were waiting on the county’s approval for stadium funds. As a Class A Advanced team, I saw how outdated Pfitzner stadium was and understood why they needed a new one but not why they needed so much money. Minor league ballparks have historically been small and bland, especially the lower ranks like Class A.
 
 
@@ -100,9 +102,29 @@ While visiting the Norfolk Tides, I saw that they had a much nicer ballpark. But
 I started researching how much new minor league stadiums across the country cost and what trends were influencing new ballpark designs. I was astounded by how much money minor league stadiums cost but couldn’t figure out why it mattered to have such expensive ballparks, prompting my decision to write on their use of public funds. I wanted economists to weigh in on whether or not the ballparks helped their communities financially. 
 
 
-Links to information/data used:
+Links to information/data used in article:
 
 http://wtop.com/news/2012/07/potomac-nationals-ballpark-to-have-crab-house/
+
+http://www.insidenova.com/news/prince_william/prince-william-chamber-rallies-behind-new-baseball-stadium/article_51e52f0e-5f34-11e7-b6e4-43b66ddc3e3a.html
+
+http://www.insidenova.com/headlines/potomac-nationals-owner-wants-stadium-vote-delay/article_b2e6d84e-6721-11e7-893b-1bc7c92ba282.html
+
+http://www.insidenova.com/news/prince_william/stewart-p-nats-stadium-deal-pretty-close-to-dead/article_8feb6446-67ed-11e7-8948-2f51fa55d2a7.html
+
+http://wtop.com/local/2017/07/possible-new-homes-potomac-nationals/
+
+https://www.boston.com/sports/boston-red-sox/2017/06/27/pawsox-ballpark-plan-re-emerges-in-rhode-island-state-house
+
+http://www.ktnv.com/news/political/ktnvrasmussen-poll-voters-opposed-to-putting-taxpayer-money-up-on-potential-raiders-stadium
+
+https://www.usatoday.com/story/sports/nfl/2017/03/27/nfl-owners-approve-raiders-move-from-oakland-to-las-vegas/99696456/
+
+Other articles that were not used but read during my early research on newer ballparks and their designs:
+
+
+
+
 
 
 
