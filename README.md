@@ -91,6 +91,19 @@ This is the reason economists like Matheson have an issue with the high amount o
 
 
 
+Explanation: I became interested in writing an enterprise story on minor league stadium deals during the sports group’s minor league reporting project. The Potomac Nationals were the first team we vistited in late June, and they were waiting on the county’s approval for stadium funds. As a Class A Advanced team, I saw how outdated Pfitzner stadium was and understood why they needed a new one but not why they needed so much money. Minor league ballparks have historically been small and bland, especially the lower ranks like Class A.
+
+
+While visiting the Norfolk Tides, I saw that they had a much nicer ballpark. But I also thought a bigger ballpark with more amenities made since for the Tides as a Triple A team; players’ last stop before the big leagues. 
+
+
+I started researching how much new minor league stadiums across the country cost and what trends were influencing new ballpark designs. I was astounded by how much money minor league stadiums cost but couldn’t figure out why it mattered to have such expensive ballparks, prompting my decision to write on their use of public funds. I wanted economists to weigh in on whether or not the ballparks helped their communities financially. 
+
+
+Links to information/data used:
+
+http://wtop.com/news/2012/07/potomac-nationals-ballpark-to-have-crab-house/
+
 
 
 
