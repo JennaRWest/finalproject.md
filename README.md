@@ -20,7 +20,8 @@ According to team owner Art Silber, Minor League Baseball told him the organizat
 Silber, former president and CEO of Sterling Bank in Baltimore, introduced drafts for a 6,000-seat ballpark in 2012 and said the team would pay for it by selling naming rights for $25 million. 
 
 
-However, as the years passed, Silber wanted the county to fund the undertaking.
+However, as the years passed, Silber began to ask the county for funds, according to Prince William County Supervisor Pete Candland.
+
 
 
 The proposed new location for the P-Nats is six miles away by the shopping complex Stonebridge at Potomac Town Center. Prince William County would issue bonds to fund building. The team would pay $2.7 million annual mortgage payments over 30 years and $450,000 per year for land rental. 
@@ -29,9 +30,9 @@ The proposed new location for the P-Nats is six miles away by the shopping compl
 After delays in getting approval, Silber withdrew his stadium plan on July 13, just five days before the Prince William County Board of Supervisors was to vote on holding a public referendum for taxpayers to decide on funding the $35 million stadium.
 
 
-“The Nationals and JBG [the team’s development group] would be the ones to benefit from this deal while the taxpayers assume the risk with it,” Supervisor Pete Candland said. 
+“The Nationals and JBG [the team’s development group] would be the ones to benefit from this deal while the taxpayers assume the risk with it,” Candland said. 
 	
-Silber is looking for another city to be the team’s home.
+Silber is looking for another city to be the team’s home, according to WTOP.com.
 
 
 The P-Nats aren’t the only minor league team demanding public funds to build a modern stadium. 
@@ -120,7 +121,7 @@ http://www.ktnv.com/news/political/ktnvrasmussen-poll-voters-opposed-to-putting-
 
 https://www.usatoday.com/story/sports/nfl/2017/03/27/nfl-owners-approve-raiders-move-from-oakland-to-las-vegas/99696456/
 
-Other articles that were not used but read during my early research on newer ballparks and their designs:
+
 
 
 
