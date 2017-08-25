@@ -40,7 +40,7 @@ The P-Nats aren’t the only minor league team demanding public funds to build a
 
 The Pawtucket Red Sox shocked fans when they asked for public funds to build a new $83 million stadium. The Triple-A affiliate of the Boston Red Sox divided the cost of the project by asking the city of Pawtucket to pay $15 million and the state of Rhode Island to cough up $23 million. The team would be responsible for $45 million.
 
-The Rhode Island Senate Finance Committee plans to vote on the funding in the fall. 
+The Rhode Island Senate Finance Committee will conduct a series of hearings on the stadium proposal in September.
 
 
 In addition to local officials’ emphasis on the economic benefits of new stadiums, they also cite modern stadiums as amenities to attract new residents, according to UNC Charlotte Economics Professor Craig Depken. 
